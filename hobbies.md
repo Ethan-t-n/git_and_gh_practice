@@ -1,0 +1,1 @@
+I like to create music by writing some lyrics out and playing a melody that matches it on my guitar. I also really enjoy hikes with friends. Recently, I have also picked up a hobby buying plants and watering them; however, I am not quite sure if that counts as a hobby.
